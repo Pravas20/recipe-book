@@ -12,5 +12,10 @@
 
 ## Instructions
 
-- Step 1
-- Step 2
+- Knead the flour, water and oil to make a dough
+- Boil the potatoes
+- Fry the boiled potatoes with salt and chillies
+- Roll the dough to create triangles
+- Fill the dough with potato stuffing
+- Deep fry in oil
+- Serve hot!
